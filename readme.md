@@ -1,1 +1,1 @@
-HQ instagram clone
+Umang Feeds APP
